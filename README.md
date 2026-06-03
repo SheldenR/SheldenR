@@ -1,3 +1,2 @@
 shelden. nice seeing you here. <br><br>
-developer in my free time. hit me up with any project ideas, always willing to build. <br><br> 还有，我正在学校中文。
-
+having fun learning and/or publishing development projects of mine. 我正在学习中文。
